@@ -1,0 +1,3 @@
+- 👋 oi,me chamo @Andreknorst.
+- 🌱 Procuro Buscar aprender e evoluir com meus erros.
+- 📫 Meu Gmail pessoal: ak.dre076@gmail.com.
